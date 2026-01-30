@@ -1,1 +1,0 @@
-# Gerador-de-sensi-lzinnn
